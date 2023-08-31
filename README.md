@@ -1,5 +1,6 @@
 Dear Sir,
 
-Could we discuss via Skype, please? I have something to discuss with you in private. My Skype ID: live:.cid.273da8c92fc12fe7. Please accept my invitation.
+Could we discuss via Skype, please? I already sent you invitation. Please accept my invitation.
+Could you pay me via payoneer or crypto, please?
 Thank you.
 
