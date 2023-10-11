@@ -5,6 +5,8 @@ While I am concerning on work, I sometimes miss messages from Upwork.
 So I think it would be benefical for us to have one more channel.
 I have Skype, Discord and Gmail.
 
+Telegram: SuperNinjaDev
+
 Skype: live:.cid.273da8c92fc12fe7
 
 Discord: herlacles1206
