@@ -11,7 +11,6 @@ Skype: live:.cid.273da8c92fc12fe7
 
 Discord: herlacles1206
 
-Gmail: andreasbar951206@gmail.com
 
 Thank you.
 
